@@ -5,11 +5,11 @@
 - **Directory:** consultant_btp
 - **Address/Contact:** 
   - disponible 24h/24 pour des consultations
-  - dans le domaine du #BTP secteur public et priv�
+  - dans le domaine du #BTP secteur public et privé
   - 
-  - Page � Ing�nieur g�nie civil
+  - Page é Ingénieur génie civil
   - 
-  - Yaound�, Cameroon
+  - Yaoundé, Cameroon
   - 
   - +237 6 73 16 31 96
   - 
